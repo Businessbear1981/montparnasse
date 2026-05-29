@@ -1,0 +1,17 @@
+# Scrivener project files — handle carefully
+*.scriv/Files/Search.indexes
+*.scriv/QuickLook/
+
+# Backup files
+*.bak
+*~
+.DS_Store
+Thumbs.db
+
+# Temporary
+*.tmp
+.idea/
+.vscode/
+
+# Local previews
+*.html
