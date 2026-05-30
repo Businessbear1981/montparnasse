@@ -24,7 +24,8 @@ The senior pigment chromatographer at Institut Restellini Analyses Scientifiques
 | Reports to | Xavier Pellaud (real, named in the Mission Order) |
 | Marital status | Unmarried, no children |
 | Lives | A two-room walk-up apartment on the rue du Stand in central Geneva, ten minutes' walk from the lab |
-| Richard's home | Napa Valley (he lives in the Valley) |
+| Richard's current home (2026) | A very small town on the north side of St. Helena, Napa Valley. A house very similar in style to the chateau at Villa Monticello (the small mirror of what NVAI built digitally) |
+| Richard's home 2022 (when he met Bill) | Not yet established. Manuscript keeps it abstract until Sean confirms |
 | Richard's origin | Marin County (born and raised) |
 | Pacific Arts Collection office | 222 Freethy Blvd, North Richmond CA 94801 — business address only, not Richard's residence |
 
