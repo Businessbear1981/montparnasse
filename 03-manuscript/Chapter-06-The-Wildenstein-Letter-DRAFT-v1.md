@@ -6,7 +6,7 @@
 
 ---
 
-If you really want to know about it I flew to Geneva four months after Bratislava because Camille Aubry had sent me an email at six o'clock on a Tuesday morning Geneva time that said exactly one sentence: *Mr. Triberg. There is a folder Marc had been keeping that you should read in person. Come when you can.* I had been waiting four months for any email from Camille that was longer than one sentence, and when it finally was longer than one sentence and the additional sentence was *come when you can,* I bought the ticket from a payphone in a Walgreens in El Cerrito because the Walgreens was the closest payphone to the apartment on Cutting Boulevard and the apartment had become, somewhere in those four months, a place I did not want to do anything in that involved planning a thing.
+If you really want to know about it I flew to Geneva four months after Bratislava because Camille Aubry had sent me an email at six o'clock on a Tuesday morning Geneva time that said exactly one sentence: *Mr. Triberg. There is a folder Marc had been keeping that you should read in person. Come when you can.* I had been waiting four months for any email from Camille that was longer than one sentence, and when it finally was longer than one sentence and the additional sentence was *come when you can,* I bought the ticket from a public payphone because the house had become, somewhere in those four months, a place I did not want to do anything in that involved planning a thing.
 
 The flight was Lufthansa, SFO to Frankfurt to Geneva. I had been on Lufthansa twice in three months by then and the cabin crew on the Frankfurt-Geneva connection was beginning to recognise me, which is the kind of thing that happens to a man who is taking his life apart by air-mile across the back half of his fifties.
 
@@ -14,7 +14,7 @@ I want to tell you something I have not yet told you and that is going to make t
 
 I am in love with her.
 
-I am a fifty-two-year-old American art broker in North Richmond, California. She has been dead since 1953. I have seen her face in a photograph by Julian Mandel, in a photograph by Man Ray, in the small canvas in a wooden crate the size of a hatbox that I had carried from Bratislava and that was, on the morning I got the email from Camille, still on the dining-room table of my apartment in Richmond.
+I am a fifty-two-year-old American art broker. I live in the Napa Valley. I am from Marin. She has been dead since 1953. I have seen her face in a photograph by Julian Mandel, in a photograph by Man Ray, in the small canvas in a wooden crate the size of a hatbox that I had carried from Bratislava and that was, on the morning I got the email from Camille, still on the dining-room table of my apartment in Richmond.
 
 I know how it sounds. I know it is the kind of thing the year 2026 has decided men are not allowed to admit to any more without an apology behind it. I am not apologising. I am also not in any particular pain about it, if you want to know the truth. The opposite, in fact. Being absurdly in love with a French queen who died before my parents met has been, in a way I did not see coming, the best four years of my life. I have flown to Bratislava at three days' notice. I have stood in a Geneva Freeport vault under a Mission Order signed by Marc Restellini. I have written two hundred and twenty-eight pages that ten years ago I would have laughed at any man for writing.
 
@@ -330,7 +330,7 @@ I read it on the plane back to San Francisco with the lights down in the cabin a
 
 I cried twice on the flight. The first time was in her paragraph about the candle that had been her grandmother's. The second time was the last sentence. *We thought we were having dinner. We were having Montparnasse.*
 
-When I got home Margaret picked up the phone on the second ring. She said, *Richard.*
+When I got back to the Valley Margaret picked up the phone on the second ring. She said, *Richard.*
 
 I said, *Margaret. Marc is going to authenticate.*
 
@@ -342,7 +342,7 @@ She said, *Bill told me he would in 2014. I have been waiting.*
 
 She hung up.
 
-I sat at the kitchen table in my apartment on Cutting Boulevard for the rest of the night. The crate from Bratislava was still on the table. The parcel was still beside it. The white card with the three words was still propped against the lemon-tree photograph.
+I sat at the kitchen table at the house for the rest of the night. The crate from Bratislava was still on the table. The parcel was still beside it. The white card with the three words was still propped against the lemon-tree photograph.
 
 *For Richard — find her.*
 

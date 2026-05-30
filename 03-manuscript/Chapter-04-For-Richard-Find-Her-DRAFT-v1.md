@@ -36,7 +36,7 @@ His widow had come in around four. Her name is Margaret. I had only met Margaret
 
 I had not been able to say anything to that either.
 
-The funeral was on the following Tuesday at the Episcopal church on the corner of Garrard and Macdonald. I do not know why it was Episcopal. Bill had never mentioned a church. The minister read a passage from the Book of Wisdom that I have not been able to find again in any Bible I have looked in since. There were sixty-seven people in the pews. I knew none of them. I sat in the back row on the aisle in a grey suit I had bought the afternoon before at a Macy's in El Cerrito because it had not occurred to me until the night before the funeral that I owned no funeral clothes, and Margaret had seen me come in and had walked the length of the centre aisle and had taken me by the elbow and had walked me up to the front row, and she had sat me beside her, and we had sat through the whole thing in silence with her hand on my forearm, and I had cried twice — once during the Wisdom reading and once when the organist played a piece I will not name here because I do not want to ruin it for you the way it has been ruined for me — and Margaret had not cried at all.
+The funeral was on the following Tuesday at an Episcopal church neither of us would ever have chosen. I do not know why it was Episcopal. Bill had never mentioned a church. The minister read a passage from the Book of Wisdom that I have not been able to find again in any Bible I have looked in since. There were sixty-seven people in the pews. I knew none of them. I sat in the back row on the aisle in a grey suit I had bought the afternoon before at a Macy's in El Cerrito because it had not occurred to me until the night before the funeral that I owned no funeral clothes, and Margaret had seen me come in and had walked the length of the centre aisle and had taken me by the elbow and had walked me up to the front row, and she had sat me beside her, and we had sat through the whole thing in silence with her hand on my forearm, and I had cried twice — once during the Wisdom reading and once when the organist played a piece I will not name here because I do not want to ruin it for you the way it has been ruined for me — and Margaret had not cried at all.
 
 The reception was at the brown brick building.
 
@@ -72,9 +72,9 @@ I had not been able to say anything to that either.
 
 She had stood up. She had set the parcel on my lap. She had bent down — she was a small woman, the top of her head came barely to my shoulder when we were both standing — and she had kissed me once on the top of my head the way a mother kisses a son she is about to send away, and she had said, *Richard. Go home. Open it tonight. Call me when you have read everything. Do not call until you have read everything.*
 
-She had gone back inside the brown brick building. The screen door had closed behind her.
+She had gone back inside. The screen door had closed behind her.
 
-I had carried the parcel to the car. I had set it on the passenger seat. I had driven the four blocks home in silence with the parcel beside me. I had carried it up the stairs and into the front room of the small apartment on Cutting Boulevard where I had been sleeping since 2018, and I had set it on the dining room table that I had never used as a dining room table because I lived alone, and I had not opened it.
+I had carried the parcel to the car. I had set it on the passenger seat. I had driven home in silence with the parcel beside me. I had carried it inside and set it on the dining room table I had never used as a dining room table because I lived alone, and I had not opened it.
 
 I had not opened it for forty-one hours.
 
@@ -173,7 +173,7 @@ I closed the letter.
 
 I put it on the table.
 
-I walked to the window of my apartment on Cutting Boulevard. I looked at the parking lot of the dental office across the street. The dental office sign read BAY AREA FAMILY DENTAL. The painted toothbrush on the front door was the same painted toothbrush I had walked past one hundred times on my way to the post office.
+I walked to the window of the front room. I looked out at the hills. They were the same hills they had been the morning Bill had called me four years earlier.
 
 I had thought I had been a broker hired by an old man to sell a painting.
 

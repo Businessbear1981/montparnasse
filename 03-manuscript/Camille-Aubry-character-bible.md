@@ -24,6 +24,9 @@ The senior pigment chromatographer at Institut Restellini Analyses Scientifiques
 | Reports to | Xavier Pellaud (real, named in the Mission Order) |
 | Marital status | Unmarried, no children |
 | Lives | A two-room walk-up apartment on the rue du Stand in central Geneva, ten minutes' walk from the lab |
+| Richard's home | Napa Valley (he lives in the Valley) |
+| Richard's origin | Marin County (born and raised) |
+| Pacific Arts Collection office | 222 Freethy Blvd, North Richmond CA 94801 — business address only, not Richard's residence |
 
 ---
 

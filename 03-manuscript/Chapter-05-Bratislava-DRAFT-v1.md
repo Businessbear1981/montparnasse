@@ -4,7 +4,7 @@
 
 ---
 
-I flew to Bratislava on the Tuesday after Bill's funeral. I bought the ticket on the Monday afternoon at a Travelocity terminal in the Richmond library — I was not staying in my own apartment with the parcel any more, I was using the library's computers because something about being in the library made me feel less alone — and I bought a coach ticket out of San Francisco to Frankfurt to Bratislava because the next direct on Lufthansa was Thursday and I could not wait until Thursday.
+I flew to Bratislava on the Tuesday after Bill's funeral. I bought the ticket on the Monday afternoon at a public-library Travelocity terminal — I was not staying in my own house with the parcel any more, I was using the library's computers because something about being in the library made me feel less alone — and I bought a coach ticket out of San Francisco to Frankfurt to Bratislava because the next direct on Lufthansa was Thursday and I could not wait until Thursday.
 
 The flight from SFO was nine and a half hours. I did not sleep. I had brought the parcel with me in a carry-on bag — *all* of the parcel, the letter, the zibaldone, the three Xerox folders, the two photographs, the manila envelope marked *The Names,* the business card, the small white envelope I had already opened, and the line of pencil on the thin archival paper. I had not let it out of my hand at the security check at SFO. The TSA officer had asked me what was in the bag and I had told him *family papers,* which was the first lie I had ever told a TSA officer and which was also, as it turned out, true.
 
@@ -226,7 +226,7 @@ I carried the painting with me.
 
 The paperwork that allowed me to carry the painting with me had been waiting in Robert's desk for nine years. The paperwork named me by name. The paperwork had been signed by Robert and Alexander and a notary in Bratislava on the twenty-third of August 2016, the morning after a long-distance phone call from a man named William in California, who had told them, *you will not have heard of him yet but his name is going to be Richard Triberg.*
 
-I carried the painting through Bratislava M. R. Štefánik, through Frankfurt, through San Francisco, in a small wooden crate the size of a hatbox, in the overhead bin of a Lufthansa Airbus, on the seat beside me on a BART train from SFO to El Cerrito Plaza, in the passenger seat of my Toyota from El Cerrito Plaza to my apartment on Cutting Boulevard.
+I carried the painting through Bratislava M. R. Štefánik, through Frankfurt, through San Francisco, in a small wooden crate the size of a hatbox, in the overhead bin of a Lufthansa Airbus, in the passenger seat of my Toyota all the way up the Valley.
 
 I set the crate on the dining-room table beside the parcel.
 

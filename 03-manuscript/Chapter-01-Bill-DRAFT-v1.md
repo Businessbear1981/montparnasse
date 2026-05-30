@@ -4,9 +4,9 @@
 
 ---
 
-I should probably tell you, before any of this gets going, that I had not heard of Bill on the morning the phone rang. He had been four blocks away from me for the better part of seven years, in a brown brick building on Macdonald Avenue with a dental office on the ground floor and his office on the second, and I had walked past that building a hundred times to get to the post office on the corner, and I had never once looked up. People who write books like this usually have some version of *we were destined* in the third or fourth paragraph. Bill and I were not destined. Bill and I were a wrong number.
+I should probably tell you, before any of this gets going, that I had not heard of Bill on the morning the phone rang. People who write books like this usually have some version of *we were destined* in the third or fourth paragraph. Bill and I were not destined. Bill and I were a wrong number.
 
-The phone rang at four-twelve in the afternoon on a Wednesday. It was March, 2022. I was at home in Richmond. I picked it up because I was waiting on a different call about a different thing that I will not bother explaining because it has nothing to do with anything that follows. A man's voice said, *is this Richard Triberg?* I said yes. The voice said, *I am sorry to bother you. I was told you might know something about Italian paintings from before 1920.*
+The phone rang at four-twelve in the afternoon on a Wednesday. It was March, 2022. I was at home in the Napa Valley. I picked it up because I was waiting on a different call about a different thing that I will not bother explaining because it has nothing to do with anything that follows. A man's voice said, *is this Richard Triberg?* I said yes. The voice said, *I am sorry to bother you. I was told you might know something about Italian paintings from before 1920.*
 
 I said, *I don't, really.*
 
@@ -54,15 +54,13 @@ There was a sentence on the back of my tongue that wanted to come out, the kind 
 
 I drove up that Saturday.
 
-The brown brick building was four blocks from my house. I had walked past it a hundred times to get to the post office on the corner. The dental office on the ground floor was called Bay Area Family Dental and had a small painted toothbrush on the front door. The door beside the dental office was unmarked. I rang the bell and a voice on the intercom said, *come up.*
-
-The stairs were carpeted in dark green. There was a smell that I want to say was old paper but that was probably just the old building. At the top of the stairs was a single door with a brass plate that said WILLIAM and nothing else.
+The address Bill had given me on the phone was an old building. The stairs were carpeted in dark green. There was a smell that I want to say was old paper but that was probably just the old building. At the top of the stairs was a single door with a brass plate that said WILLIAM and nothing else.
 
 I had been expecting Bill to be sixty. Bill was eighty-one.
 
 He opened the door himself. He was a small man, thin, white hair, an old grey cardigan over a yellow shirt. He shook my hand with both of his. He looked me in the eye for a long time. He said, *thank you for coming.*
 
-The office was one room. There was a kitchen table in the middle with two chairs at it. There was a wall of bookshelves. There was a window that looked out over the dental office's parking lot. There was a small kettle on a side table. There was nothing on the walls. There were no paintings.
+The office was one room. There was a kitchen table in the middle with two chairs at it. There was a wall of bookshelves. There was a window that looked out over a small back lot. There was a small kettle on a side table. There was nothing on the walls. There were no paintings.
 
 He sat me at the kitchen table. He made tea. He put it in front of me. He sat down across from me. He did not bring out the painting.
 
@@ -104,7 +102,7 @@ Bill said, *that is what we have to prove.*
 
 We sat with the painting between us for another twenty minutes. Bill did not say anything else. When I left, he walked me down the green-carpeted stairs and shook my hand again with both of his and said, *call me when you have decided.*
 
-I drove the four blocks home.
+I drove home.
 
 I did not sleep that night.
 
