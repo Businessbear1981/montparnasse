@@ -44,6 +44,16 @@
 - Has a side line in inspired-merchandise (*Prima Donna candle* inspired by Kiki) — entrepreneurial, but always running through Kiki.
 - Calls Pacific Arts Collection "we" in some passages — suggests a small team but operates as principal.
 
+## Personal register (per Sean, who has met him in spirit but not in person)
+
+- **Chill.** Not brittle, not high-strung. The kind of man whose calm is contagious in a meeting.
+- **Nice.** Genuinely. To everyone in the room. To the parking attendant. To the colour-merchant equivalent. *Kindness without performance.*
+- **Passionate.** About the painting, about Kiki, about the work, about Bill. The passion is the engine of the four years.
+- **Jolly.** A small good-humour thread runs through him. Makes the small joke. Laughs the small laugh. Lets the room exhale. *The warmth is on his face before any conversation has begun.* The book lets this be visible without making him a clown — Zooey making his sister laugh in the bathtub, not Holden sneering at Pencey.
+- **Good-looking.** Not a vain man, but a handsome one. Carries it lightly.
+- **Good-looking wife.** Very beautiful, per Sean. Both of them attractive people — the kind of couple who walk into a dinner party in Napa and the room re-orients without quite noticing.
+- **Likeable.** The combined effect of the above. People want to be around him. The four-year obsession with Kiki has not made him difficult to know — *it has made him deeper to know.*
+
 ## What the book carries from this on the page
 
 - His voice in the modern arc: educated but plain, warm, generous, Holden-by-way-of-art-broker. The Salinger ear is what the book uses; the gentleness and generosity in his own writing are the temperament under the Salinger ear.
