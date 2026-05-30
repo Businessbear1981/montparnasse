@@ -44,15 +44,20 @@
 - Has a side line in inspired-merchandise (*Prima Donna candle* inspired by Kiki) — entrepreneurial, but always running through Kiki.
 - Calls Pacific Arts Collection "we" in some passages — suggests a small team but operates as principal.
 
-## Personal register (per Sean, who has met him in spirit but not in person)
+## Personal register (per Sean, who met him once on a piece of business and has read him at a distance since)
 
 - **Chill.** Not brittle, not high-strung. The kind of man whose calm is contagious in a meeting.
 - **Nice.** Genuinely. To everyone in the room. To the parking attendant. To the colour-merchant equivalent. *Kindness without performance.*
 - **Passionate.** About the painting, about Kiki, about the work, about Bill. The passion is the engine of the four years.
-- **Jolly.** A small good-humour thread runs through him. Makes the small joke. Laughs the small laugh. Lets the room exhale. *The warmth is on his face before any conversation has begun.* The book lets this be visible without making him a clown — Zooey making his sister laugh in the bathtub, not Holden sneering at Pencey.
+- **Happy.** Settled-happy. Not performed, not jolly. A man who likes his life. *The warmth is on his face before any conversation has begun.* Closer to Zooey at ease in the family apartment than to anything that needs a punchline.
+- **Voice: deep, soothing, slightly scratchy.** The kind of voice the audiobook narrator has to match. Tom Waits run through Sam Elliott, warmer than either. *The voice itself is half of why people listen to him.* The prose on the page carries the cadence of that voice — measured pauses, low warmth, the small rasp at the end of a sentence.
+- **Excellent storyteller.** *This is the lock that validates the whole book.* Richard the narrator in these pages is doing what Richard the man does in person — knows how to land a line, knows when to pause, knows whose voice to bring into the room.
+- **Changes tone well.** *And that is the artist-voice discipline.* The mutation across chapters — Hemingway tight, Cocteau drifting, Foujita Bashō, Modi sullen, Man Ray vain — isn't a literary trick on the page. It is a social muscle Richard has in conversation, transposed to prose.
+- **Thorough.** Five thousand hours and a 228-page Exposé will tell you that. The thoroughness shows up in how he picks a word in his own writing — *of course,* not just *yes.*
+- **Direct.** Doesn't let things slide. If something needs to be said, he says it to the person it needs to be said to — promptly, without theatre. *This is the temperament under all the niceness.* The niceness is real, but it sits on top of a clean boundary line.
 - **Good-looking.** Not a vain man, but a handsome one. Carries it lightly.
 - **Good-looking wife.** Very beautiful, per Sean. Both of them attractive people — the kind of couple who walk into a dinner party in Napa and the room re-orients without quite noticing.
-- **Likeable.** The combined effect of the above. People want to be around him. The four-year obsession with Kiki has not made him difficult to know — *it has made him deeper to know.*
+- **Universally liked.** People want to be around him. *And the book takes Sean's observation about that seriously:* the kind of being-liked that says a life did not require ruthlessness or cold or any of the harder things to make. Richard's gaze on Kiki carries no chip, no axe, no rage. He gets to love her cleanly because his own life was clean enough to leave room for the love.
 
 ## What the book carries from this on the page
 
