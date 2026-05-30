@@ -16,9 +16,9 @@ It is not a replacement for the Exposé. It is the way the Exposé reaches the w
 
 Two lives running side by side, separated by exactly one hundred years.
 
-**Kiki's life.** Born Alice Ernestine Prin in Châtillon-sur-Seine on the second of October, 1901. Sent to Paris at twelve to live in poverty with a mother who barely wanted her. Modelling for sculptors and painters by fourteen. Caught at sixteen in the orbit of a period film director who used her in short films he never credited her for and treated her in ways the world would now call by their right names. Painted from a distance, in the same year, by a thirty-three-year-old Italian dying of tuberculosis who watched her from a corner of the Rotonde for two years before he ever got her to sit — Amedeo Modigliani, who had a pregnant wife at home and a year and a half left to live. **Until the summer night the rain came.**
+**Kiki's life.** Born Alice Ernestine Prin in Châtillon-sur-Seine on the second of October, 1901. Sent to Paris at twelve to live in poverty with a mother who barely wanted her. Modelling for sculptors and painters by fourteen. **Met Amedeo Modigliani in 1915, when she was fourteen and he was thirty-one and starting to cough.** He sketched her obsessively from that first year forward, in a Montparnasse studio he shared for two years with the British painter Christopher Richard Wynne Nevinson — a studio art history has spent a century pretending never existed. The 1917 canvas at the centre of this book is from inside that shared studio, in the autumn the rain came on while she stood in the doorway with wet hair and laughed at him.
 
-Kiki was the Madonna of her time. The Lady Gaga. The Elizabeth Taylor. Half the photographs we now think of when we picture the 1920s are of her face. Every cabaret stage in Montparnasse cleared when she walked toward it. She sang. She painted — her own canvases were shown at Berthe Weill's gallery and praised by the same critics who had hung Modigliani. She wrote a memoir Hemingway gave a foreword to in 1928. She was not a footnote in someone else's story. She was the centre of the room.
+Kiki was the Madonna of her time. The Lady Gaga. The Elizabeth Taylor. Half the photographs we now think of when we picture the 1920s are of her face. Every cabaret stage in Montparnasse cleared when she walked toward it. She sang. She painted — her own canvases were shown at Berthe Weill's gallery and praised by the same critics who had hung Modigliani. She fell in love with Man Ray in 1922 and the two of them defined the next decade together. Hemingway wrote the foreword to her 1928 memoir and called her *"the woman who has never been a lady, but a queen,"* and the two of them had a brief affair. **She was not a footnote in someone else's story. She was the centre of the room.**
 
 And then the long quiet falling — the drinking, the war, the irrelevance, the hospital ward in 1953 where she died alone of cirrhosis at fifty-one, the queen having become an inconvenience.
 
@@ -46,9 +46,11 @@ The biography buried inside the Exposé that the Exposé itself was always tryin
 
 **Paris, 1913–1917.** Modelling for sculptors and painters by fourteen to put food on a table. Learning the cafés before she was old enough to drink in them. Renamed *Kiki* by Soutine or by Chaim Soutine's circle, depending on which account you believe. Caught into the periphery of the early French film world. **The period film director.** Many short films. No credit. A relationship the world would now name without hesitation. The hands crossed in front of the body as a learned posture.
 
-**Summer 1917 — the rain.** Modigliani has been watching her from a distance for two years. He has sketched her without her knowledge from across the Rotonde a dozen times. He has not asked her to sit. He cannot ask her to sit. Then one night in July the sky opens, and she walks into a café where he is drinking, and her hair is wet, and she has had enough wine to laugh, and she sits down across from him and tells him she will pose if he stops looking at her like that. They walk back to the studio on the rue de la Grande Chaumière through the rain. He drinks more than he should because his lungs are bad and he is afraid. She drops her clothes. She crosses her hands in front of her body — the gesture she has learned to make in the rooms of the film director — and Modigliani sees the gesture for what it is, and he paints it. He paints the crossed hands as the gesture of a girl giving herself back to herself in front of a man who, for once, has not come to take anything from her. **The book is making that night.**
+**1915–1917 — the shared studio.** Modigliani meets Alice Prin in 1915, the year after he begins coughing. She is fourteen. He is thirty-one. He sketches her obsessively — at the Rotonde, at Chez Rosalie's, in pencil and chalk on whatever paper is to hand — for two years before the small canvas is painted. The studio on the rue de la Grande Chaumière is shared with the British war painter C. R. W. Nevinson, who has the morning light, while Modigliani has the afternoon. The red velvet pillow on the couch in that studio appears in over two dozen of Modi's 1917 nudes, including the one we are selling. The signature white shawl over the back of the chair — same. The same furniture turns up in photographs of his earlier studios going back to 1912.
 
-**1917–1920.** The painting finished. Modi keeps it. He does not sell it. He hangs it where Jeanne does not see it. He paints Kiki again from memory, half a dozen times, in the months that follow — none of those works survive in any catalogue. He dies in January 1920. Jeanne jumps from a window the next morning. Kiki is eighteen. She reads about it in a paper. The painting passes through hands. What she felt is not in any of the accounts.
+**Autumn 1917 — the painting.** A rainy Tuesday afternoon. The journalist Sisley Huddleston is in the corner taking notes for an American magazine — he will become the inadvertent witness whose 1927 letter to the New York *Herald Tribune* is the document that proves the studio was shared. Kiki arrives wet, with the green hat she wears in the photographs of that year. She lays the hat on the chair beside the shawl. She lies down on the red pillow. She folds her hands below her left knee. Modigliani paints. The canvas is finished by the time the light goes.
+
+**1917–1920.** The painting is the centrepiece of Modi's last major nude exhibition at Berthe Weill in December 1917 — the one the police close on opening day for indecency. The painting is bought back. Modi keeps it. He paints Kiki at least a dozen more times in the years that follow; only a fraction of those works survive. He dies in January 1920. Jeanne Hébuterne jumps from a window the next morning. Kiki is eighteen. She reads about it in a paper. The painting passes into private hands and disappears from public view for one hundred and ten years.
 
 **1921–1925.** Man Ray. The Café Certa. The years she became the queen. *Le Violon d'Ingres* photographed in 1924. The face of Montparnasse on the cover of half the photo journals in Europe. Lovers: Man Ray, Foujita, Kisling, Soutine in glimpses, briefly Robert Desnos. Singing at the Jockey Club, then at her own place. The crossed hands of the painting opening into the open arms of the photographs.
 
@@ -66,18 +68,18 @@ That is the spine. Twelve chapters of a life. The book is for the reader who has
 
 ## What Richard and Camille uncover, chapter by chapter
 
-The doors back into Kiki's life are opened by specific things they find together. A short list of what waits in the research drawer — every one of them already in your Exposé or your reports, all that changes is which chapter they get released into:
+The doors back into Kiki's life are opened by specific things they find together — and almost all of these are already in your Exposé. The recasting just releases them one at a time, where each one earns the slip into 1917:
 
-- A fragment of journal kept by a woman who fed Kiki at fourteen
-- A photograph in a Berthe Weill catalogue showing the crossed-hands pose for the first time, two years before Modi paints it
-- The pigment chromatograph identifying the summer night the canvas was wet
-- A diary entry by Foujita that mentions a heavy rain in Montparnasse, July 1917
-- A short film reel half-rotting in a Cinémathèque vault where Kiki appears uncredited for nineteen seconds at sixteen years old
-- A letter from Hemingway in 1928 saying he had written the foreword in three drafts because the first two were not honest enough
-- A receipt from the Café Certa with three signatures on the back
-- The painting itself, drying on the easel in 1917, hanging in a back room in Bratislava in 2024, in a vault in Geneva in 2026
+- A Tate postcard of *An Artist Studio in Montparnasse* by C. R. W. Nevinson, bought for one pound forty, with the same red pillow as the Modigliani in the background
+- The 3 March 1926 *Sketch Newspaper* colour reproduction of the original Nevinson, showing Kiki reclining on the couch — not standing by the window as in the altered Tate version
+- Sisley Huddleston's letter to the Paris edition of the New York *Herald Tribune,* 24 February 1927, accusing Nevinson of altering the painting
+- The InsightART pigment chromatograph on the red ground layer of our canvas, matching the same Belgian lead-white batch as Modi's *Caryatid* (1915–16)
+- Photographs of Modi's earlier Montparnasse studios with the same red pillow, the same fruit bowl, the same white shawl
+- Hemingway's 1928 foreword in draft, with his sentence about Kiki being "the woman who has never been a lady, but a queen"
+- A Berthe Weill gallery receipt from the closed December 1917 nudes exhibition
+- The painting itself, in a back room in Bratislava in 2024, in the Geneva Freeport in 2026
 
-Each fragment unlocks one chapter of a life history has misfiled. Camille's science finds half of them. Your literary archaeology finds the other half. You meet in the middle every time.
+Each fragment unlocks one chapter of a life history misfiled. Camille's science finds half. Your literary archaeology finds the other half. You meet in the middle every time.
 
 ---
 
@@ -134,7 +136,7 @@ Each chapter does the same thing. Something Richard finds in the present opens a
 | 0 | **Prologue** | Châtillon-sur-Seine, 1901–1913 — born, abandoned, taken to Paris |
 | I | **Bill**, 2022 — the phone call that began the four years | Paris, 1913–1916 — twelve to fifteen, learning to model, learning the cafés |
 | II | **The Red Pillow** — the 1917 Nevinson canvas, the 109-year-old shared-studio discovery | 1916–1917, **the film director.** The shorts she was in. What was done. The crossed hands she learned to put across her body. |
-| III | **Summer Rain** — Camille's pigment chromatograph identifies the night | **July 1917 — the rain. The wine. The pose. The crossed hands.** The night the painting we are selling came into the world. |
+| III | **The Sketch Newspaper, 3 March 1926** — Camille and Richard find the colour reproduction of the *original* Nevinson, before he altered it | **Autumn 1917 — the painting.** Kiki on the red couch, Modigliani at the easel, Sisley Huddleston in the corner taking notes for the American magazine piece that will become the 1927 *Herald Tribune* letter. The painting is finished by the time the light goes. |
 | IV | **For Richard — Find Her** — a somber funeral. The morning after, his widow gives you the package Bill left. The note. The keys to the rest of the work. | January 1920 — Modigliani dies. Jeanne the next day. Kiki at eighteen reads it in a newspaper. The two losses, a hundred and four years apart, sit on the same page. |
 | V | **Bratislava** — meeting Alexander and Judr. Robert | 1920–1921 — the year between. What does a girl do when the man who painted her from a distance dies. |
 | VI | **The Wildenstein letter, 2012** — Marc was the curator the first time | 1921–1922 — Man Ray. The Café Certa. The relationship that makes her into the queen. |
